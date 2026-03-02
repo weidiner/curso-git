@@ -1,3 +1,2 @@
 Aleluia aleluia
-Bendito seja Deus
-Não recuses a sabedoria de Deus
+O amor de Deus se espalhou por toda a terra
